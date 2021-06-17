@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @vdammavalam
+- 👀 I’m interested in all things technology...
+- 💞️ I’m looking to collaborate on AI based healthcare projects
+- 📫 How to reach me vdammavalam@yahoo.com
